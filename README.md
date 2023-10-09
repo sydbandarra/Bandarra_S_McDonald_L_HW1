@@ -31,7 +31,17 @@
 - **Personal Style and Fashion Curation**
 - **Live Concert Photography**
 
- ### Favourite Music
+ ### Favourite Musicians
+ 1. Deftones
+ 2. Sevdaliza
+ 3. VIOLENT VIRA
+ 4. Citizen
+ 5. Flyleaf
+ 6. Scarlxrd
+ 7. NoName
+ 8. Hope Tala
+ 9. Holy Fawn
+ 10. Scorpions
 
  ### My Artwork
 ![mr.james_portrait](img/mr.james_portrait.jpg)
