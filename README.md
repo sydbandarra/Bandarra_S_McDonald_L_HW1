@@ -48,7 +48,9 @@
 ![stompbox_poster_blue](img/stompbox_poster_blue.jpg)
 ![sole_and_sophia_portrait](img/sole_and_sophia_portrait.jpg)
 ![tattoo_flash](img/tattoo_flash.jpg)
-
+**Check Out These Links to See My Other Creations**
+[view more of my digital artwork here](https://instagram.com/orchidinks?igshid=NTc4MTIwNjQ2YQ==)
+[view my traditional artwork here](https://instagram.com/sydvabandarrart?igshid=NTc4MTIwNjQ2YQ==)
 
 
 
