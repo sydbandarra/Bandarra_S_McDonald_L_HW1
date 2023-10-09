@@ -16,6 +16,8 @@
 2. Stargazing
 
 **Fav Movies:**
+1. Fast and Furious 1-4
 
+2. Cars 
 
 
