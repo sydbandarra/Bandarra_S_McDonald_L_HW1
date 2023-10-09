@@ -34,6 +34,12 @@
  ### Favourite Music
 
  ### My Artwork
+![mr.james_portrait](img/mr.james_portrait.jpg)
+![stompbox_poster_blue](img/stompbox_poster_blue.jpg)
+![sole_and_sophia_portrait](img/sole_and_sophia_portrait.jpg)
+![tattoo_flash](img/tattoo_flash.jpg)
+
+
 
 
 
