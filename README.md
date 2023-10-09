@@ -26,7 +26,7 @@
 - **Fibre Arts**
     - Crochet
     - Macrame
-    - Stuffed toys and plushies
+    - Stuffed Toys and Plushies
     - Textile Creation
 - **Personal Style and Fashion Curation**
 - **Live Concert Photography**
