@@ -24,5 +24,5 @@
 [My Fav Website](https://www.aniwave.to)
 
 
-! [Leyton kicking ball](img/playingfootball.jpeg)
+![Leyton kicking ball](img/playingfootball.jpeg)
 
